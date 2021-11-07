@@ -8,8 +8,8 @@ I'm ADS a content creator on [Youtube](https://www.youtube.com/channel/UCZXP2KuQ
 
 
 - 🤔 I’m looking for help with Outstanding Video ideas.
-- 📫 How to reach me: ads23uwwu@protonmail.com
-- 😎 Fun fact: I am Dumb
+- 📫 How to reach me : ads23uwwu@protonmail.com
+- 😎 Fun fact : I am Dumb
 
 #### Top Technologies
 
